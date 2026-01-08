@@ -1,1 +1,1 @@
-# DailyLife-CI  fuck you
+# DailyLife-CI  Hi Friends!!
